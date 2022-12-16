@@ -7,5 +7,6 @@ Project desciption: Fully customizable media player (I'm thinking drag and drop)
 
 If interested message feel free to contact me
 Contact
+Email: raeemmohammedacct2@gmail.com
 Discord: redeemmike#1740
 Reddit: fella_guy
